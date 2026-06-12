@@ -6,7 +6,7 @@
 
 🐶 **Dog Person** | Always better with a furry friend! 🐾
 
-☕ **Coffee/Tea lover** | Perfectly paired with a good series.
+🧋 **Thai Tea Lover** | Perfectly paired with a good series.
 
 ✨ **Always learning, always growing.**
 
